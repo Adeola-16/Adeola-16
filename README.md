@@ -8,8 +8,8 @@
 - I am passionate about learning new tricks and staying relevant in my field.
 - Thanks to 10Alytics, Welup Digitals, AlexTheAnalyst, Mynda Treacy, and other resource persons, just to mention a few who have made this journey interesting.
   - 💞️ I’m looking to collaborate on a continuous basis to improve my knowledge base and to give back to the society
-- 📫 I am easily accessible. I am just an email or phone call away
-  - ⚡ Fun fact: ...I love footbal and PS FIFA. I also enjoy proble solving with the game of Chess.
+- 📫 I am easily accessible. I am just an email or phone call away. https://www.linkedin.com/in/adeolaadegbesan/
+  - ⚡ Fun fact: ...I love footbal, PS FIFA, and the game of Chess.
 
 <!---
 Adeola-16/Adeola-16 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
